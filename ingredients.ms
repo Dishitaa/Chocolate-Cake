@@ -1,0 +1,1 @@
+Milk, Eggs, Vanilla Extract, Chocolate Chips, Cocoa Powder, Baking Soda, and Butter
